@@ -40,4 +40,4 @@ Ferguso|TIDAK!!!
 
 
 Video pertarungan sengit Esmeralda vs Ferguso :scream_cat: :crying_cat_face: :pouting_cat:
-[![Image Pertarungan(https://i.ytimg.com/vi/SImXuZwUvcw/hqdefault.jpg?sqp=-oaymwEZCPYBEIoBSFXyq4qpAwsIARUAAIhCGAFwAQ==&rs=AOn4CLCY9NtMkdU7lSf5e2dk2xvdJZQK6Q)](https://www.youtube.com/watch?v=SImXuZwUvcw)]
+[![Image Pertarungan](https://i.ytimg.com/vi/SImXuZwUvcw/hqdefault.jpg?sqp=-oaymwEZCPYBEIoBSFXyq4qpAwsIARUAAIhCGAFwAQ==&rs=AOn4CLCY9NtMkdU7lSf5e2dk2xvdJZQK6Q)](https://www.youtube.com/watch?v=SImXuZwUvcw)
